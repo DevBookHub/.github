@@ -13,3 +13,7 @@
 #### Book 📕
 
 * [오브젝트](https://www.yes24.com/Product/Goods/74219491) : 2024.09.13 ~ 
+
+
+---
+Orginization 프로필 이미지 출처 <a href="https://kr.freepik.com/free-psd/3d-space-rocket-with-smoke_13677911.htm">Freepik</a>
